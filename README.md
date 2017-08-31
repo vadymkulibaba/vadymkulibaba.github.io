@@ -1,1 +1,0 @@
-# vadymkulibaba.github.io
